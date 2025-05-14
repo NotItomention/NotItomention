@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @NotItomention
-- 👀 I’m interested in icon designing
-- 🌱 I’m currently learning nothing
+- 👀 I’m interested in icon designing ,video or photo editing 
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me email - ansh96490@gmail.com
 - 😄 Pronouns: ...
